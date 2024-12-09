@@ -1,1 +1,9 @@
-# Brainwave_Matrix_Intern
+![Screenshot (1235)](https://github.com/user-attachments/assets/c162e47c-339f-4c25-9d65-b0e0bca66054)
+![Screenshot (1236)](https://github.com/user-attachments/assets/92ad45d3-568e-4536-91e3-7f0333ad570f)
+![Screenshot (1237)](https://github.com/user-attachments/assets/532779e8-68af-441a-b2f1-9eda51803c49)
+![Screenshot (1238)](https://github.com/user-attachments/assets/bdd7988a-4519-445d-9859-620abc599b16)
+![Screenshot (1239)](https://github.com/user-attachments/assets/88cd248c-2dde-484e-b616-e61ef2f2a4f3)
+![Screenshot (1240)](https://github.com/user-attachments/assets/8e3f8849-5a3b-499f-a444-e69a7fac62cd)
+![Screenshot (1241)](https://github.com/user-attachments/assets/568808f8-25cc-4cd0-ab14-ce2a76e29a38)
+![Screenshot (1242)](https://github.com/user-attachments/assets/c1b42168-b4ab-4902-900a-25586a33d205)
+![Screenshot (1243)](https://github.com/user-attachments/assets/ba8b9b1c-b72c-4662-b6a4-f89eec2af3f1)
